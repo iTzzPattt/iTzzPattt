@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @iTzzPattt
-- 👀 I’m interested in Nothing
-- 🌱 I’m currently learning to be better than yesterdat
+- 👋 Hi, I’m Patrick
+- 👀 I’m interested in Coding 
+- 🌱 I’m currently learning to be better than yesterday
 - 💞️ I’m looking to collaborate on Computer stuffs
 - 📫 How to reach me email me @halawokbarcher12@gmail.com
 - 😄 Pronouns: Respect to all but I identify as a refrigerator
